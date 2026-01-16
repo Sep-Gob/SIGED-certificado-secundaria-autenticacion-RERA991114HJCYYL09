@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-RERA991114HJCYYL09
+RERA991114HJCYYL09
